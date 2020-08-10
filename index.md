@@ -10,3 +10,4 @@ a lot (countless)
 ### Job Experience
 1 month as Research expert in Naghsh click co.
 ## Licences && Certificates
+https://quera.ir/profile/ayda1
