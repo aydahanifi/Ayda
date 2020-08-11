@@ -1,7 +1,7 @@
 ### About
 I'm Ayda hanifi
 20 y.o
-Study at pnu(tehran somal) Computer engineering
+Study at pnu(Tehran shomal) Computer engineering
 
 ### Skills
 a lot (countless)
