@@ -10,6 +10,7 @@ have a degree in network++ and windows10 from MFTSK
 Flunet in AutoCAD
 
 ### Job Experience
-2 month as Research expert in Naghsh click co.
+4 month as Research expert and IT expert in Naghsh click co.
 ## Licences && Certificates
+network++ at mftsk
 https://quera.ir/profile/ayda1
